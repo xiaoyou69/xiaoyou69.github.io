@@ -1,1 +1,1 @@
-# xiaoyou69.github.io
+# [xiaoyou69.github.io](https://hoo.be/mogudq)
